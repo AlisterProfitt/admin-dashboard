@@ -1,0 +1,1 @@
+I'm kinda getting the hang of things right now, so let's hope that this particular project isn't too hard! Grid is a bit confusing and a bit intimidating, but I don't think it should be that difficult to be honest. Let's hope I'm right
